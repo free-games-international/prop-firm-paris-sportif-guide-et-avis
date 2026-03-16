@@ -1,4 +1,4 @@
-# 🏆 Prop Firm en paris sportifs : Guide Complet & Avis (2026)
+# Prop Firm en paris sportifs : Guide Complet & Avis (2026)
 
 Pendant longtemps, les parieurs sportifs rentables se heurtaient à deux problèmes majeurs :  
 - Le manque de capital (bankroll trop petite)  
